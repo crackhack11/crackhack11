@@ -1,3 +1,2 @@
-To enter the account add this 
-Username POPLCK
-password Ll95064321
+To download the crack, download it 
+The crack is for 14 days and the updates are not downloaded 
